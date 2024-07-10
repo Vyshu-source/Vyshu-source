@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Vyshnavi 
-- 👀 I’m interested in Product Management 
+- 👀 I’m interested in Product Management, Market research & analysis, Content creation 
 - 🌱 I’m currently learning the strategic approach to launch a product in a market 
 - 💞️ I’m looking to collaborate on Market research, Content creation for products, Building strategy 
 - 📫 How to reach me vyshnavithulasiraj@gmail.com
